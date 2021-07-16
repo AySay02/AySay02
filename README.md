@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AySay02
+- I'm pretty much new here
+- Currently learning unity and game Dev.
+- Eager and open to learn more.
